@@ -1,5 +1,5 @@
 # 💫 About Me:
-Animation & Videogame engineer | Full stack web dev & iOS dev | UX/UI appasioante and lover 🦎
+I love designing things and make them real 🦎 
 
 
 ## 🌐 Socials:
